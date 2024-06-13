@@ -36,5 +36,5 @@ A sparkling clean, we must confess.
 Now you’re done, take a bow,\
 You’ve cleaned the kitchen, and here’s how.\
 With a bit of effort and a lot of cheer,\
-You’ve made the kitchen pristine and full of fear!
+You’ve made the kitchen pristine and clear!
 
